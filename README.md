@@ -1,1 +1,1 @@
-# 1.-Integrated-E-shopping-Application-
+# Integrated-E-shopping-Application-
