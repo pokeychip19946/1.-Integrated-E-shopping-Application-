@@ -1,1 +1,0 @@
-# Integrated-E-shopping-Application-
